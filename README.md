@@ -24,4 +24,4 @@
 
 立即收藏本站，开启你在2025年最爽快的看片旅程。成人羞羞免费，不只是资源多，更是看片体验的极致升级！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben188888 ）</span> 
